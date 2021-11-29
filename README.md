@@ -1,1 +1,0 @@
-# izmirsaatkulesi233274vhak
